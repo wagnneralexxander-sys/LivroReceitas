@@ -3,5 +3,6 @@
 
 Olá bem vindos ao meu livro de receitas. 📝
 
- - Strogonoff de frango 
- - apavê Limao 
+ - Strogonoff de Frango 🐔
+ - Pavê de Limão 🍋‍ 
+ - Bolo de Cenoura 
