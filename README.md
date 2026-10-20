@@ -3,5 +3,5 @@
 
 Olá bem vindos ao meu livro de receitas. 📝
 
- - Strogonoff de frango 
- - apavê
+ - Strogonoff de Frango 🐔
+ - apavê de Limão 🍋‍🟩 
